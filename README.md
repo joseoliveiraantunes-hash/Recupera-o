@@ -1,1 +1,1 @@
-# Recupera-o
+# Recupera-o.
